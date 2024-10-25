@@ -1,4 +1,7 @@
-> Hi everyone , here is justice roster . 
+> **Hi everyone , here is justice roster .**
+
+> [!NOTE]
+> The only valid Discord is Justice Sunset. [Join Discord](https://discord.gg/2xWYkMhnkY)
 
 # D O J roster 
 
