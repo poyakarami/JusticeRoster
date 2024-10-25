@@ -86,4 +86,4 @@
 </details>
 
 > [!CAUTION]
-> در اینجا هیچ گونه لینکی گذاشته نخواهد شد مراقب باشید .
+> we are the main center , Do not trust anyone .
